@@ -52,7 +52,7 @@
  ${\textsf{\color{#F8C8DC}Nσɳʂԋαɾιɳɠ . Rιαƙσ . Wαɳԃҽɾҽɾ + Nιƙσʅαι Yυɱҽ}}$
 </p>
 <p align="right">
- ${\textsf{\color{#C1E1C1}Bαʂʂιҽ Bʅσσɱιɳɠƚσɳ Fιƈƚƙιɳ . DσυႦʅҽʂ Dɳι}}$
+ ${\textsf{\color{#C1E1C1}Bαʂʂιҽ Bʅσσɱιɳɠƚσɳ Fιƈƚƙιɳ . DσυႦʅҽʂ DNIUF}}$
 </p>
 <p align="right">
  ${\textsf{\color{#F8C8DC}Sԋαɾιɳɠ Sρɾσυƚ Yυɱҽ . Sԋαɾιɳɠ Fαɱιʅαʅ Gσυɾԃყ Yυɱҽ}}$
