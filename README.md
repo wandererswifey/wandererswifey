@@ -30,7 +30,7 @@
  ${\textsf{\color{#F8C8DC}Bαʂʂιҽ / Hαɾυ / Hαɾυƙα}}$
 </p>
 <p align="left">
- ${\textsf{\color{#C1E1C1}20 . Pαɳ . Aƈҽ}}$
+ ${\textsf{\color{#C1E1C1}20 . Pαɳromantic . Demisexual}}$
 </p>
 
 <p align="center">
